@@ -1,2 +1,2 @@
 20213081 yunho
-kookmin Univ. SW
+kookmin Univ. SW dept.
